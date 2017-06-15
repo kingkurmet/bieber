@@ -1,5 +1,5 @@
 # Justin Biber Konzert in Bern
 
-Es war mega lässig!
+Es war super mega lässig!
 
 Er hat ganze 30 Minuten gespielt.
